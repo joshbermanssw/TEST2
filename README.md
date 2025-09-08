@@ -1,1 +1,1 @@
-fucken cunt
+fuck
